@@ -1,0 +1,1 @@
+# Cake-Types-Slider-Blog
